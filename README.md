@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rudra619kumar@gmail.com**
 
-- ⚡ Fun fact **I do not a thing about Github**
+- ⚡ Fun fact **I am in Spain but the 'S' is silent.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
